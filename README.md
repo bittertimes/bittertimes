@@ -13,7 +13,7 @@
 <img src=https://64.media.tumblr.com/f7b70a9963a0791f012952233865ca88/4b3a49b06bc28f48-af/s1280x1920/49b0a54d01bc57f195f3c623ef0f010e6b5dac3d.pnj>
 
 **derse** <img src="https://64.media.tumblr.com/59ec2ef6ea17bd39180f9d5c01c285ad/f591a3167c0fd859-35/s75x75_c1/c3bf98a37bdbec050ad4eb5362745b8c40ce814c.gifv" width=18> purple blooded <img src="https://64.media.tumblr.com/0c6cb85eaf5532ed6904dc2d094f0a5d/fac4692b91455cc8-1e/s75x75_c1/b0e4c498237225df5a3d3d3aee021b44ba2d9bd2.gifv" width=18> **knight** of **time** <img src=https://64.media.tumblr.com/bad511773b06a0ed58cac04b30b32976/2ed394ffe87cf3bd-c1/s75x75_c1/013ec9d80ea4f5f64bdb1fafbde66a8b253ad89a.gifv>
-16<sub>(12-29) </sub>y/o neurodiv ***transsex man*** <img src=https://files.catbox.moe/9ekvy3.png width=20> <img src=https://files.catbox.moe/0317v1.png width=20>
+ㅤㅤ16<sub>(12-29) </sub>y/o neurodiv ***transsex man*** <img src=https://files.catbox.moe/9ekvy3.png width=20> <img src=https://files.catbox.moe/0317v1.png width=20>
 
 <details>
     <summary>byi</summary>
