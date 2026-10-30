@@ -4,7 +4,7 @@
 
  `- ———— ‧₊˚♪𝄞࿐₊˚⊹ ———— -`
 
-<img src="https://64.media.tumblr.com/8c2fc17bd1272dd0798306bc6508290e/e3e512b331c4cfa5-23/s500x750/0e4542502be150b9e264f5454bf75e90e63f7c30.gifv" width=320>
+<img align=left src="https://64.media.tumblr.com/8c2fc17bd1272dd0798306bc6508290e/e3e512b331c4cfa5-23/s500x750/0e4542502be150b9e264f5454bf75e90e63f7c30.gifv" width=320>
 
 
 <table>
@@ -27,6 +27,8 @@
 </details>
 
 <img src=https://64.media.tumblr.com/68bb9e71ec030bfeb579002c6761aa36/1a5d22165b53a32a-c4/s100x200/0fdbbd6d314bba4bd23916a7611781af0e19878b.gifv> <img src=https://64.media.tumblr.com/3b374c607961d9d48bb412afe6e06397/e6736d38004e0a13-e4/s100x200/1babc7399fd7cbaafd36c23ec97192defc41aae9.pnj> <img src=https://64.media.tumblr.com/7dda80769c657f0392c1936d7485629f/78de34b97153f0e1-ac/s100x200/b21b456e8a863b49866d4b3ea4325eb281e34f3d.pnj>
+
+ <img width="180" src="https://komarev.com/ghpvc/?username=bittertimes&color=c23c3c&label=cups+of+coffee+ive+drunk"> 
 
 <img src=https://64.media.tumblr.com/f7b70a9963a0791f012952233865ca88/4b3a49b06bc28f48-af/s1280x1920/49b0a54d01bc57f195f3c623ef0f010e6b5dac3d.pnj>
         </td>
