@@ -14,7 +14,8 @@
 
 ㅤ**derse** <img src="https://64.media.tumblr.com/59ec2ef6ea17bd39180f9d5c01c285ad/f591a3167c0fd859-35/s75x75_c1/c3bf98a37bdbec050ad4eb5362745b8c40ce814c.gifv" width=18> purple blooded <img src="https://64.media.tumblr.com/0c6cb85eaf5532ed6904dc2d094f0a5d/fac4692b91455cc8-1e/s75x75_c1/b0e4c498237225df5a3d3d3aee021b44ba2d9bd2.gifv" width=18> **knight** of **time** <img src=https://64.media.tumblr.com/bad511773b06a0ed58cac04b30b32976/2ed394ffe87cf3bd-c1/s75x75_c1/013ec9d80ea4f5f64bdb1fafbde66a8b253ad89a.gifv>
 16<sub>(12-29) </sub>y/o neurodiv ***transsex man*** <img src=https://files.catbox.moe/9ekvy3.png width=20> <img src=https://files.catbox.moe/0317v1.png width=20>
-ㅤㅤ<img src=https://images.artfight.net/character/EH8aZkcisL1lK8v9rs6dY8gSCdaBPgX766tVJo8WB9s4K30s5yzovzEQDREY.png width=50 alt="dionys medeis">
+
+<img src=https://images.artfight.net/character/EH8aZkcisL1lK8v9rs6dY8gSCdaBPgX766tVJo8WB9s4K30s5yzovzEQDREY.png width=50 alt="dionys medeis">
 
 <details>
     <summary>byi</summary>
