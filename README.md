@@ -14,6 +14,7 @@
 
 ㅤ**derse** <img src="https://64.media.tumblr.com/59ec2ef6ea17bd39180f9d5c01c285ad/f591a3167c0fd859-35/s75x75_c1/c3bf98a37bdbec050ad4eb5362745b8c40ce814c.gifv" width=18> purple blooded <img src="https://64.media.tumblr.com/0c6cb85eaf5532ed6904dc2d094f0a5d/fac4692b91455cc8-1e/s75x75_c1/b0e4c498237225df5a3d3d3aee021b44ba2d9bd2.gifv" width=18> **knight** of **time** <img src=https://64.media.tumblr.com/bad511773b06a0ed58cac04b30b32976/2ed394ffe87cf3bd-c1/s75x75_c1/013ec9d80ea4f5f64bdb1fafbde66a8b253ad89a.gifv>
 16<sub>(12-29) </sub>y/o neurodiv ***transsex man*** <img src=https://files.catbox.moe/9ekvy3.png width=20> <img src=https://files.catbox.moe/0317v1.png width=20>
+<img src=https://images.artfight.net/character/EH8aZkcisL1lK8v9rs6dY8gSCdaBPgX766tVJo8WB9s4K30s5yzovzEQDREY.png width=50 alt="dionys medeis">
 
 <details>
     <summary>byi</summary>
@@ -23,7 +24,7 @@
 
 <details>
   <summary>interests</summary>
-  homestuck, rhythm doctor, mewgenics, ace attorney, portal, undertale/deltarune, the binding of isaac, your turn to die, musical theater, rhythm games in general, south park, and weezer mainly!
+  homestuck, rhythm doctor, mewgenics, ace attorney, portal, undertale/deltarune, the binding of isaac, your turn to die, musical theater, rhythm games in general, south park, joost, and weezer mainly!
 </details>
 
 <img src=https://64.media.tumblr.com/68bb9e71ec030bfeb579002c6761aa36/1a5d22165b53a32a-c4/s100x200/0fdbbd6d314bba4bd23916a7611781af0e19878b.gifv> <img src=https://64.media.tumblr.com/3b374c607961d9d48bb412afe6e06397/e6736d38004e0a13-e4/s100x200/1babc7399fd7cbaafd36c23ec97192defc41aae9.pnj> <img src=https://64.media.tumblr.com/7dda80769c657f0392c1936d7485629f/78de34b97153f0e1-ac/s100x200/b21b456e8a863b49866d4b3ea4325eb281e34f3d.pnj>
