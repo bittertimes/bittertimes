@@ -1,6 +1,7 @@
 <div align=center> 
   
-  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Micro+5&size=21&pause=3000&color=C23C3C&width=435&lines=%22Phew.+Alright%2C+maybe+I+went+a+little+overboard+with+the+coffee%22" width=700 alt="Typing SVG" /></a>
+### $${\textsf{\color{#5c0952}”Phew. Alright, maybe I went a little overboard with the coffee.“}}$$
+
 
  `- ———— ‧₊˚♪𝄞࿐₊˚⊹ ———— -`
 
