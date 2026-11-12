@@ -27,6 +27,8 @@ $${\textsf{\color{#b13636}16}}$$<sub>(12-29) </sub>$${\textsf{\color{#b13636}y/o
 <details>
   <summary>interests</summary>
   homestuck, rhythm doctor, mewgenics, ace attorney, portal, undertale/deltarune, the binding of isaac, your turn to die, musical theater, rhythm games in general, south park, joost, and weezer mainly!
+
+  <img src=https://images.artfight.net/character/EH8aZkcisL1lK8v9rs6dY8gSCdaBPgX766tVJo8WB9s4K30s5yzovzEQDREY.png width=20 alt="dionys medeis"> <- this is [dionys medeis](https://artfight.net/character/10987445.dionys-medeis) btw and hes fucking awesome and we all love him hes my super cute super kawaii trollsona
 </details>
 
 <img src=https://64.media.tumblr.com/68bb9e71ec030bfeb579002c6761aa36/1a5d22165b53a32a-c4/s100x200/0fdbbd6d314bba4bd23916a7611781af0e19878b.gifv> <img src=https://64.media.tumblr.com/3b374c607961d9d48bb412afe6e06397/e6736d38004e0a13-e4/s100x200/1babc7399fd7cbaafd36c23ec97192defc41aae9.pnj> <img src=https://64.media.tumblr.com/7dda80769c657f0392c1936d7485629f/78de34b97153f0e1-ac/s100x200/b21b456e8a863b49866d4b3ea4325eb281e34f3d.pnj>
